@@ -2,7 +2,7 @@
 
 ## Ομάδα 2
 * Για το ερωτηματολόγιο πατήστε [εδώ](https://docs.google.com/forms/d/e/1FAIpQLSdpcHScEhvq3BdYTjk8htu_BAzFFx9GMGU51_UJIUES0XUL4g/viewform?usp=sf_link)
-* Για τα αποτελέσματα πατήστε [εδώ]().
+* Για τα αποτελέσματα πατήστε [εδώ](https://docs.google.com/spreadsheets/d/1t0tS5DP6yijzeIvNwZHugxye9y_oO_fR_EwX6-J-nto/edit?usp=sharing).
 
 
 
