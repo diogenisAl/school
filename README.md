@@ -7,5 +7,8 @@
 
 
 # 2ο Δημοτικό Σχολείο Κορωπίου - Εργαστήρια Δεξιοτήτων
-* [Γ1 (εργαστήριο νο1)]()
-* [Γ2 (εργαστήριο νο1)]()
+* [Γ1 (εργαστήριο νο1)](https://docs.google.com/document/d/1hPRquiDU1rlZfB6JAO4soNO0HAxzQZgCZPIuyBAKOSQ/edit?usp=sharing)
+* [Γ1 (εργαστήριο νο1 - προσδοκίες και αναστοχασμός)](https://docs.google.com/forms/d/e/1FAIpQLSfOe9X5ssqAvYcjvWCGTbLitHiV1rhOfHnOFASqK0ruB9_I6A/viewform)
+ 
+* [Γ2 (εργαστήριο νο1)](https://docs.google.com/document/d/1CTttmmTeXEJIAXQ4Vm86kMR4t4wm1bm91v1BKXmqQg8/edit?usp=sharing)
+* [Γ2 (εργαστήριο νο1 - προσδοκίες και αναστοχασμός)](https://docs.google.com/forms/d/e/1FAIpQLSc_h7tcW2yt7_mbsNZXRuOljRDxTG8LRi2KJSV8T5wxIze7RQ/viewform)
