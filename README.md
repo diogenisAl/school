@@ -11,7 +11,4 @@
 [Ασφάλεια στο internet με λόγια απλά ](https://edutv.minedu.gov.gr/index.php/documentaries/asfaleia-me-apla-logia)
 
 
-* [Γ1 (εργαστήριο νο2 - αναστοχασμός)](https://docs.google.com/forms/d/e/1FAIpQLSeQyYaPjSoFfQ9tq2W52yr512H8jb6ejbtFxO2H1Wd6ZmN8ew/viewform)
- 
-
-* [Γ2 (εργαστήριο νο2 - αναστοχασμός)](https://docs.google.com/forms/d/e/1FAIpQLSeNLio0VUqo4xvN7Os4Osg9zhmfPtZ7GNQOwDTd98-yIFTrLg/viewform)
+[Αναστοχασμός)](https://padlet.com/c15alex/p7az5oywy25iljtd)
