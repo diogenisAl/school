@@ -1,6 +1,9 @@
 # 2ο Δημοτικό Σχολείο Κορωπίου - Εργαστήρια Δεξιοτήτων
 
-[Ασφάλεια στο internet με λόγια απλά ](https://edutv.minedu.gov.gr/index.php/documentaries/asfaleia-me-apla-logia)
+[Βόλτα στο δάσος](https://www.youtube.com/watch?v=50TR_M_jpeQ&t=19s)
 
 
-[Αναστοχασμός](https://padlet.com/c15alex/p7az5oywy25iljtd)
+[Ερωτηματολόγιο](https://docs.google.com/forms/d/e/1FAIpQLSd6nlV9aBjxa9b2b4bJIWKwxN6k6-bSuUW7vEwFOEMUjthjjg/viewform)
+
+
+[Δασικός χάρτης της Ελλάδας](https://www.geogreece.gr/dasos.php)
