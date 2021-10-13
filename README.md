@@ -1,9 +1,9 @@
-# 2ο Δημοτικό Σχολείο Κορωπίου - Εργαστήρια Δεξιοτήτων
+Εργαστήρια Δεξιοτήτων
 
-[Βόλτα στο δάσος](https://www.youtube.com/watch?v=50TR_M_jpeQ&t=19s)
+[Γ1](https://padlet.com/c15alex/ifey85b2cb4nlvom)
 
 
-[Ερωτηματολόγιο](https://docs.google.com/forms/d/e/1FAIpQLSd6nlV9aBjxa9b2b4bJIWKwxN6k6-bSuUW7vEwFOEMUjthjjg/viewform)
+[Γ2](https://padlet.com/c15alex/ddxfgq1x27ncsnht)
 
 
 [Δασικός χάρτης της Ελλάδας](https://www.geogreece.gr/dasos.php)
