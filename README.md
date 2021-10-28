@@ -1,9 +1,6 @@
 # Εργαστήρια Δεξιοτήτων
 
-[Γ1]()
+[Aerial footage shows fires raging in parts of Brazil's Amazon rainforest](https://www.youtube.com/watch?v=zeCrWvm8Umg&t=67s)
 
 
-[Γ2]()
-
-
-[Δασικός χάρτης της Ελλάδας](https://www.geogreece.gr/dasos.php)
+[Ερωτηματολόγιο](https://forms.gle/PvmaLoramkjw2tGN6)
