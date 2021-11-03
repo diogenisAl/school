@@ -1,6 +1,15 @@
-# Εργαστήρια Δεξιοτήτων
+# Γ1
 
-[Aerial footage shows fires raging in parts of Brazil's Amazon rainforest](https://www.youtube.com/watch?v=zeCrWvm8Umg&t=67s)
+[Τι σκέφτεστε όταν ακούτε τη λέξη «Δάσος»;](https://padlet.com/diogenisalex/50jd6dznjhnl6bpc)
+[Τι θα προτείνατε για να προστατεύονται καλύτερα τα δάση;](https://padlet.com/c15alex/31lofehjmmkivuq2)
+
+[Ερωτηματολόγιο]()
 
 
-[Ερωτηματολόγιο](https://forms.gle/PvmaLoramkjw2tGN6)
+
+# Γ2
+
+[Τι σκέφτεστε όταν ακούτε τη λέξη «Δάσος»;](https://padlet.com/diogenisalex/5iw49spjenwlohik)
+[Τι θα προτείνατε για να προστατεύονται καλύτερα τα δάση;](https://padlet.com/c15alex/pv1d8btx6kvt39hu)
+
+[Ερωτηματολόγιο]()
