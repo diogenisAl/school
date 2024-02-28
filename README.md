@@ -1,2 +1,3 @@
 ### Παρουσιάσεις
-[Πατήστε εδώ!](https://www.dropbox.com/request/R8IWtHUZVSL4jPBbaJYa)
+[Students](https://forms.gle/RM58X4n1brHMcBwy7)
+[Parents](https://forms.gle/Pqvc5mL2BEyzUjox6)
